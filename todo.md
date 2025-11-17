@@ -1,5 +1,5 @@
 - reply
 - make coffee
-- chill with friends
+- chill on my own
 - make dinner
-- watch Netflix
+- sleep
