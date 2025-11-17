@@ -1,5 +1,8 @@
-- reply
+- reply emails
 - make coffee
 - chill on my own
 - make dinner
+- watch Netfilx
 - sleep
+- wake up
+- repeat
