@@ -1,0 +1,5 @@
+- reply
+- make coffee
+- chill with friends
+- make dinner
+- watch Netflix
